@@ -24,7 +24,6 @@ Hi, I'm the tommy; it's me. __tommy teaches tommy__ is just a phrase I like to u
 <details>
   <summary>More details (ramblings)...</summary>
 
-  <br/>
   Outside of the innate narcissism and suspected solipsism, I prefer this phrase as a way to clarify and preface that what I'm sharing and writing is directed at myself as the audience. I'm teaching myself this topic, whether I know it already or not.
 
   I want to clarify that, because I am preemptively anxiously concerned that my writing-style would otherwise come across as a disrespectful "know it all". I'm really, honestly not trying to be a jerk. But, I sometimes actually do kinda know what I'm talking about ... that's as much as I'll admit.
